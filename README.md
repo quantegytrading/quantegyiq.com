@@ -1,1 +1,1 @@
-[https://quantegyiq.com](https://quantegyiq.com)
+[https://quantegyiq.com](https://quantegyiq.com) 
